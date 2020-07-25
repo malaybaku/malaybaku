@@ -4,6 +4,7 @@
 
 - Client programmer.
 - Use [Twitter](https://twitter.com/baku_dreameater) when you want any quick contact
+- [Wish List](https://www.amazon.jp/hz/wishlist/ls/YMJFL21GPP0U?ref_=wl_share)
 
 ### Skills
 
