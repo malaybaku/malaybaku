@@ -3,6 +3,7 @@
 ### Who are you
 
 - Client programmer.
+- Use [Twitter](https://twitter.com/baku_dreameater) when you want any quick contact
 
 ### Skills
 
